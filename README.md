@@ -1,23 +1,15 @@
 <p align="center">
-  <img src="https://shields.io_♡-18%2C344-f6ebd1?style=flat-square" />
-  <img src="https://shields.io_♡-12%2C608-595368?style=flat-square" />
+  <img src=[![507-sin-titulo-20260720042442.png](https://i.postimg.cc/B6NwBfyT/507-sin-titulo-20260720042442.png)](https://postimg.cc/TLL9TFT1) alt= width="600">
 </p>
 
 <p align="center">
-  <img src=[https://i.postimg.cc/FHVzPmhD/dd51a91ff43f3e190b85da61c0a2baf6.jpg][https://i.postimg.cc/FHVzPmhD/dd51a91ff43f3e190b85da61c0a2baf6.jpg](https://postimg.cc/qNgpRPh3)" width="70%">
+  <img src=[![506-sin-titulo-20260720042349.png](https://i.postimg.cc/gjkQC2R7/506-sin-titulo-20260720042349.png)](https://postimg.cc/zb6xW5xw) alt= width="60">
 </p>
 
-$$\textsf{\color{#FFCCB3}echmul  ◚  flamman . c*h allowed maybee ;)?}$$
-
-<p align="center"> 
-  ————✧ &nbsp; <a href="https://www.instagram.com/falmman1?igsh=ZHoxcDIyN3RnbWdk">atabook</a> &nbsp;&nbsp;&nbsp;&nbsp; <a href="tiktok.com/@heiroflat">strawpage</a> &nbsp; ✧————
-</p
-
-$$\textsf{\color{#B279B5}and everytime we kiss, i swear i could fly . ♡}$$
-
-<p align="center"[IMG-20260624-WA0025.jpg](https://i.postimg.cc/xCZZffVm/IMG-20260624-WA0025.jpg)](https://postimg.cc/47zPwTd4)
-  <img src="" width="40%">
+<p align="center">
+  <img src="[![508-sin-titulo-20260720042525.png](https://i.postimg.cc/Pr0V443P/508-sin-titulo-20260720042525.png)](https://postimg.cc/bsHRYQjh)" alt= style="transform: rotate(180deg);" width="60">
 </p>
+
 
 
 
